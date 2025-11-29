@@ -1,1 +1,0 @@
-# AdmitWise-AI
